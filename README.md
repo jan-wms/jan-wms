@@ -1,1 +1,1 @@
-# Computer Science Student at TU Munich 🎒
+# Hi there 👋
